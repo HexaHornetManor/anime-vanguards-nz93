@@ -1,4 +1,4 @@
-#  
+#  Experience anime vanguards like never before with vip Scripts for anime vanguards, the #1 Script. Includes anti-ban and no clip for unbeatable
 
 
 
